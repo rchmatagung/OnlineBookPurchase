@@ -1,1 +1,2 @@
-//assalamualaikum
+//assalamualaikum warrahmatullahi wabarakatuh
+//gasken
